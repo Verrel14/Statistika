@@ -1,0 +1,2 @@
+# Statistika
+baca aja
